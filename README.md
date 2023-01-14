@@ -1,3 +1,3 @@
 # Github-Tutorial
 
-Do you know how to create your own website now?
+This took me a hell lot of time to make, please help me
