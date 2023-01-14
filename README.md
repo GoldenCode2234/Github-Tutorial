@@ -1,3 +1,3 @@
 # Github-Tutorial
 
-I am actually getting bored doing this
+So how is your day? Well mine is fine...and boring. You know work and homework
