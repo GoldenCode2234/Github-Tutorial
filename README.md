@@ -23,3 +23,7 @@ Do you know how to make a website now?
 > Don't Forget to share this to the people that want to try Github and learn coding
 - This is unorganized list
 1. While this is organized
+
+`This will make a code, which does not make sense tbh`
+
+[Subscribe!](https://www.youtube.com/@skyhighgaming6627/videos)
